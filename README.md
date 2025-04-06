@@ -18,14 +18,6 @@ Estoy interesada en el desarrollo **front-end** y **back-end**, y me encanta exp
 
 ---
 
-🎧 **Fuera del mundo tech, disfruto de:**
-- Leer  
-- Escuchar música  
-- Jugar ajedrez  
-- Videojuegos
-
----
-
 📫 **Puedes contactarme en:**  
 - [✉️ Correo electrónico : lili.juarezc23@gmail.com ](lili.juarezc23@gmail.com)
 - [💼 LinkedIn : Ana Lilia Juárez Campos](www.linkedin.com/in/ana-lilia-juarez-campos-172398288)
